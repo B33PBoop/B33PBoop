@@ -1,3 +1,3 @@
-- I have a bit of experience in web development (front-end only), Unity 2D and video editing/sfx
+- I have a bit of experience in web development (mostly front end, learnig back end), Unity and video editing/sfx
 - Currently studying more web development (back-end/server side and more front end stuff), Unity 3D and Maya for 3D modeling
 - if you, ~~for some reason~~ want to reach me, hit me up on discord! >BeepBoop#4746
