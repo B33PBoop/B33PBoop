@@ -1,3 +1,3 @@
 - I have a bit of experience in web development (mostly front end, learning back end), Unity and video editing/sfx
 - Currently studying more web development (back-end/server side and more front end stuff), and making a game for a semester project
-- if you, ~~for some reason~~ want to reach me, hit me up on discord! >BeepBoop#4746
+- if you ~~for some reason~~ want to reach me, hit me up on discord! >BeepBoop#4746
